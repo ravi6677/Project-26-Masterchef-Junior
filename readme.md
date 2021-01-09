@@ -1,0 +1,1 @@
+This is my chocolate chip cookie recipe. The cookies are crispy on the outside and chewy on the inside. I'm sure you will love them. Have fun baking!
